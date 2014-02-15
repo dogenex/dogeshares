@@ -1,7 +1,8 @@
-DogeShares (GRUM)
+DogeShares (DGX)
 ===========
 
 DOGESHARES
+www.dogenex.com
 
 BITCOINTALK <br>
-https://bitcointalk.org/index.php?topic=403936.0
+
