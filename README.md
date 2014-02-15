@@ -1,7 +1,7 @@
 DogeShares (DGX)
 ===========
 
-DOGESHARES
+DOGESHARES<br>
 www.dogenex.com
 
 BITCOINTALK <br>
